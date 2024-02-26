@@ -37,7 +37,7 @@ I consider myself a highly adaptable person, quick learner, and adept at handlin
 
 - 📝 I love learning new stuff
 
-- 📫 Feel free to reach me out **jmoracafe@@gmail.com**
+- 📫 Feel free to reach me out **jmoracafe@gmail.com**
 
 - 🧶 Fun fact: i love crochet
 <!--Intro end-->
